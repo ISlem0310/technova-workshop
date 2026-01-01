@@ -1,1 +1,0 @@
-# technova-workshop
